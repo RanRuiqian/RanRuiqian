@@ -17,4 +17,4 @@ Outside of engineering, I am a photography enthusiast who enjoys tearing down an
 
 ## Contact
 - Email: moreless77777@gmail.com
-- LinkedIn: [linkedin.com/in/ranruiqian]
+- LinkedIn: linkedin.com/in/ranruiqian
